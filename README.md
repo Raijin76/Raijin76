@@ -2,7 +2,9 @@
 - 👀 I’m interested in anything under 5
 - 🌱 I’m currently learning how to last more then 1 min
 - 💞️ I’m looking to collaborate on PH
-- 📫 How to reach me 
+- 📫 How to reach me
+- ss 213819600
+- NUM717-584-3268
 - 😄 Pronouns: sigma
 - ⚡ Fun fact: im the sigma of my clan 😈😈😈🐺🐺🐺
 
